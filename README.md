@@ -2,7 +2,7 @@
 
 Perkenalkan nama saya **Jahfal Azzuhri Subroto**.<br>
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/jahfal-azzuhri-subroto-b22255217)ku ya.
+Mari berkoneksi di Linkedin, silakan ikuti akun saya [Linkedin](https://www.linkedin.com/in/jahfal-azzuhri-subroto-b22255217)ku ya.
 
 <p align="left">
 <a href="https://github.com/jahfal1987">
